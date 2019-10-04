@@ -4,7 +4,7 @@ A distinguished sociologist of mass communication, Charles (Charlie) Wright was 
 
 This is interview is part of the [Communication Scholars Oral History Project](https://ascla.asc.upenn.edu/communications-scholars-history-project/) at the [Annenberg School for Communication Library Archives](https://ascla.asc.upenn.edu/mission-history-policies/) (ASCLA).
 
-The [full interview is available on the [ASCLA site](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/).
+The [full interview](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/) is available on the [ASCLA site](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/).
 
 ## About ASCLA
 

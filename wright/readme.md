@@ -6,6 +6,12 @@ This is interview is part of the [Communication Scholars Oral History Project](h
 
 The [full interview](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/) is available on the [ASCLA site](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/).
 
+The audio of each session (as mp3 files) may be downloaded here:
+
+* [Session one](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-session-one-c.mp3)
+* [Session two](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-audio-session-two.mp3)
+* [Session three]()
+
 ## About ASCLA
 
 The [Annenberg School for Communication Library Archives](https://ascla.asc.upenn.edu/mission-history-policies/) (ASCLA), at the University of Pennsylvania, collects, describes, preserves, exhibits, and makes available to the University community, and scholarly publics more generally, materials pertinent to the interdisciplinary field of communication and its history.

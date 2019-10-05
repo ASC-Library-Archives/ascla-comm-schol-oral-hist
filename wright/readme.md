@@ -10,7 +10,7 @@ The audio of each session (as mp3 files) may be downloaded here:
 
 * [Session one](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-session-one-c.mp3)
 * [Session two](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-audio-session-two.mp3)
-* [Session three]()
+* [Session three](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-audio-session-three.mp3)
 
 ## About ASCLA
 

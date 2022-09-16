@@ -1,10 +1,10 @@
 # About the Communication Scholars Oral History Project 
 
-Transcripts and other documents related to the [Communication Scholars Oral History Project](https://ascla.asc.upenn.edu/communications-scholars-history-project/) at the [Annenberg School for Communication Library Archives](https://ascla.asc.upenn.edu/mission-history-policies/) (ASCLA).
+Transcripts and other documents related to the [Communication Scholars Oral History Project](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/collections/history-field) at the [Annenberg School for Communication Library Archives](https://www.asc.upenn.edu/research/centers/annenberg-school-for-communication-library-archives/) (ASCLA).
 
 ## About ASCLA
 
-The [Annenberg School for Communication Library Archives](https://ascla.asc.upenn.edu/mission-history-policies/) (ASCLA), at the University of Pennsylvania, collects, describes, preserves, exhibits, and makes available to the University community, and scholarly publics more generally, materials pertinent to the interdisciplinary field of communication and its history.
+The [Annenberg School for Communication Library Archives](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/) (ASCLA), at the University of Pennsylvania, collects, describes, preserves, exhibits, and makes available to the University community, and scholarly publics more generally, materials pertinent to the interdisciplinary field of communication and its history.
 
 ## License
 

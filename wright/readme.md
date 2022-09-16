@@ -4,13 +4,9 @@ A distinguished sociologist of mass communication, Charles (Charlie) Wright was 
 
 This is interview is part of the [Communication Scholars Oral History Project](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/collections/history-field) at the [Annenberg School for Communication Library Archives](https://www.asc.upenn.edu/research/centers/annenberg-school-for-communication-library-archives) (ASCLA).
 
-The [full interview](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/) is available on the [ASCLA site](https://ascla.asc.upenn.edu/communications-scholars-history-project/charles-r-wright-oral-history/).
+The [full interview](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/collections/history-field/oral-history-charles-r-wright-1927-2017) is available on the [ASCLA site](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/collections/history-field/oral-history-charles-r-wright-1927-2017).
 
-The audio of each session (as mp3 files) may be downloaded here:
-
-* [Session one](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-session-one-c.mp3)
-* [Session two](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-audio-session-two.mp3)
-* [Session three](https://imghost.asc.upenn.edu/AudioSrv/ascla_audio/wright-audio-session-three.mp3)
+The audio of each session (as mp3 files) will be posted [here](https://www.asc.upenn.edu/research/centers/annenberg-school-communication-library-archives/collections/history-field/oral-history-charles-r-wright-1927-2017) soon.
 
 ## About ASCLA
 
